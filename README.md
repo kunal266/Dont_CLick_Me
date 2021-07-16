@@ -1,5 +1,5 @@
 
 
-![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
+![Alt Text](https://github.com/kunal266/Dont_CLick_Me/blob/main/tenor.gif)
 
 ## Lmao Noob
